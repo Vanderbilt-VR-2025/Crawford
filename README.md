@@ -1,6 +1,7 @@
-“Hope” is the thing with feathers -  
+“Hope” is the thing with birds -  
 That perches in the soul -  
 And sings the tune without the words -  
 And never stops - at all -  
 And sweetest - in the Gale - is heard -  
-- Written by yours truly, Vanderbilt VR
+Written by yours truly, Vanderbilt VR
+
